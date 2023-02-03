@@ -1,0 +1,2 @@
+# CSA0712-CN-PRACTICALS
+Tumu Mani Sai Pavan 192225011
